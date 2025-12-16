@@ -3,7 +3,7 @@
 Texte de Anne Sylvestre : coquelicot et autre mots que j’aime
 
 
-assigné à la naissance :
+assigné à la naissance 
 Dans un berceau, 
 La place est prête
 Assignation au berceau
@@ -15,8 +15,7 @@ Fœtus atterri sous l’arbre d’un pli
 Assigné là
 Tais toi maintenant, maman veut dormir, tu seras assigné à être notre enfant,
 en l’absence de ta parole, ton assignation nous pousse à te désigner et toi à végéter 
-longtemps
-Végétation en berceau, reconnu assigné par nom donné du père ou plus moderne de la mère
+Végétation en berceau, reconnu assigné par nom donné du père ou plus moderne de la mere
 La mère, elle assigné mère par la naissance de la pomme tombée de l’utérus, 
 Père assigné père
 Père en cavale 
@@ -25,16 +24,14 @@ Accusé pierre et pomme, papier ciseau, l’enfant dans son berceau
 Tu crois toi qu’il est boulversé ? Non je ne crois pas
 C’est le calme plat en vérité
 Quand tu es assigné c’est au tribunal, d’ailleurs tu peux assigné quelqu’un au tribunal, c’est le mot recommandé qu’il reçoit l’assignation, copie en double exemplaire, envoyé par huissier de justice
-Tu reçois l’assignation, tu y vas
-au tribunal
+Tu reçois l’assignation, tu y vas au tribunal
 tous les assignés y vont au tribunal
 Nous y sommes tous
-J’aimerais ça d’ailleurs, bébé assigné au tribunal, qu’il vienne là
+ qu’il vienne là
 Expertise psychologique de cet être pomme, descendu à la vertical dans un monde horizotal
 Expertise Judiciaire du berceau en forme de banane, 
 En un lieu assigné son adresse
 Le juge doit trancher
-Ce qui m’intéresse
 Le lieu du franchement 
 Qui semble impossible à ce vide
 Vide d’être parent, par assignation
@@ -52,12 +49,11 @@ Qu’il n’est pas réellement né
 Et pour ça on manque de preuve
 Le doute profite à l’accusé
 Sur le bébé il y a un doute
-Alors on l’a déposé la au milieu du  tribunal et on attend
+Alors on l’a déposé la au milieu du  tribunal 
 Le juge ne dit rien, il est perplexe comme si tout avait eu lieu à l’envers avec cette naissance là
 Il est perplexe et on attend un temps très long
-« Faite appelé les grand parents » il dit
 Report d’audience, les grands parents vont être assigné eux aussi
-Il faut remonter le temps à l’envers et l’assigner au tribunal, pour que cette naissance là trouve d ou elle est la cause et si elle a vraiment eu lieu
+Il faut remonter le temps à l’envers pour que cette naissance là trouve d ou elle est la cause
 
 
 
