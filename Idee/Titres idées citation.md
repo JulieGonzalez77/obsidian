@@ -1,6 +1,7 @@
 
 - Bebe touchė coulė ( idée de titre)
 - Tête bouche bébé
+- Bébé bouche
 
 Idée : 
 
@@ -24,4 +25,8 @@ Fratricide
 
 Accusė par les étoiles 
 
+
+Mes phrases citation de moi :
+- la vérité commence toujours par un mensonge 
+- 
 

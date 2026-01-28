@@ -28,6 +28,8 @@ Si un patient a déjà vu un nombre important de médecin ça n’est pas la pei
 
 
 Inégalité de traitements homme femme
+Inégalités raciste : syndrome méditerranéen 
+Grossophobie
 Vous n’avez rien 
 C’est dans votre tête 
 Débusquer 
@@ -50,7 +52,7 @@ Cachez cette souffrance que je ne saurai voir
 Relation de pouvoir
 L objet de la relation : le corps et la santé, nommer le réel 
 Qui nomme le réel 
-Le grand pouvoir de dire ce qui est et ce qui n ‘est rien
+Le grand pouvoir de dire ce qui est et ce qui n ‘est rien; le folie de dénier une sensation
 Obtenir le soins, le chantage à l’ordonnance 
 Un pouvoir grandissant : fin de vie, maternité, PMA, expertise, aide financière en cas de handicap invalidité, aah, changement de sexe, ivg, 
 
@@ -113,9 +115,13 @@ Certaines maladie n existe pas encore comme dénomination
 Les astuces des patients pour survivre en milieu hostile médical : 
 Bcp de femmes observe,t au elle sont mieux traiter en alllant consulter avec leur conjoint qui atteste et témoigne de la véracité de ce qu’elle dise
 
+Les astuces. : retranscrire mon audio 
+
+
 Solution : 
 Club de santé amateur
 Apprendre la médecine En amateur
+L auto gynecologie
 Aller voir à l’étranger
 Aller chez 
 Se réappropriai le savoir médical
@@ -125,9 +131,36 @@ Exemple :
 Vous êtes malade aussi le weekend ou quand vous partez en vacances ?
 L exemple du café 
 
+Le fantasme de la séparation corps esprit
+Et pourquoi c'est dans ta tête ne veut rien dire
+De la dualité aristotélicienne 
+
+Effexor baisse du médicament 
+
+L obéissance irrationnelle du patient 
+
+Association de patients, communication entre patient 
+
+La maladie est une création du corps médical qui tente de classer le réel des observations des dysfonctionnements du corps et de ses souffrances 
+On ne découvre pas une maladie, 
+
+
+Une aggravation des fonctionnements 
+L état de l hôpital, du service publique, 
+
+
+Association les hystériques 
+Association de lutte contre la toute puissance et la violence médicale. 
+
+
+
+
 
 trois livres comme psy : 
 Les Violences médicale 
 Guérir des violences sexuelle, conseil et exercice pratique 
-Être plusieurs, comprendre la personnalité multiple, TDI (Anais nin)
-La voix, 
+Être plusieurs, comprendre la personnalité multiple, TDI (Anais nin), une chanteuse américaine
+La voix, du trauma à la créativité 
+
+
+![[IMG_0118.jpeg]]

@@ -8,29 +8,31 @@ Mardi
 
 Mercredi 
 Médical
-Sortie le soir, amie, spectacle etc
 
-Jeudi 
-Médical
+Jeudi  : 8 créneaux 
 
-Vendredi psy 
+14h/14h45
+14h45/15h30
+15h30/16h15
+16h15/17h
+17h/17h45
+17h45/18h30
+18h30/19h15
+19h15/20h
+20h/20h45? 
 
-13h/ 13h45
-13h45/14h30
-14h30/15h15
-15h15/16h
-16h/16h45
-16h45/17h30
-17h30/18h15
-18h15/19h
-19h/19h45
-19h45/20h30
+Vendredi psy : 8 créneaux et un groupe de parole
 
-20h30/22h15 groupe thérapeutique Lyme 40  20h30/22h00
-D autres groupes ? Écriture thérapeutique trauma, écriture et corps; 50.  20h30/22h30 
+14h/14h45
+14h45/15h30
+15h30/16h15
+16h15/17h
+17h/17h45
+17h45/18h30
+18h30/19h15
+19h15/20h
 
-Dans l idéal 700 et 160 
-
+20h15/22h groupe de parole lyme, trauma, 
 
 Il faut un logiciel d envoie du lien automatique genre doctolib
 
@@ -42,6 +44,8 @@ Courses : l aide à dom
 Ménage : l aide à dom
 
 Dimanche
-Repos, sortie
-Possible écriture 
-Soirée travail avec une troupe de théâtre 
+Temps couple 
+Point médical et recherche médical 
+
+
+

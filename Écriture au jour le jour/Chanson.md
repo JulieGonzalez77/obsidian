@@ -21,7 +21,7 @@ J’ai encore mal putain maman, docteur, y’a quelqu’un qui arrive ?
 Alors on attend comme des merdes de fragilité, 
 A essayer de tenir debout sur un fil pété 
 
-Alors on attend, la tête haute, et les jambes coupés au fuseau horaires bloqué
+Alors on attend, la tête haute, et les jambes coupés 
 
 Le temps est arrêté mille fois 
 En morceaux fragmenté
