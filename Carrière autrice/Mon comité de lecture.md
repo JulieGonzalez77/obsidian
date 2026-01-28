@@ -14,6 +14,26 @@ Florence giorgettI : metteurs en scène, actrice, qui pourrait aimer et vouloir 
 PAULINE PAYRADE 
 
 Ceux qui aiment valère Novarina : 
+Fabrice thumerel
+Isabelle larthault
+Guillaume breton
+Christian skimao
+Rose veillon
+François bon
+Pauline clermidy
+Marc leonard
+Charles Gonzales 
+Claire gillie
+Pierre commeine
+Marie sol parant 
+Jean Marie Thiedey
+Pascal le guennec
+Leo lithia 
+Mireille Diaz Florian 
+Geneviève egea 
+Sébastien Lespinasse 
+Thierry Gill
+Marina zinzius
 
 
 
