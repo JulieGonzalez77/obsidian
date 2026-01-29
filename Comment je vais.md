@@ -33,3 +33,6 @@ Mes désirs :
 Écrire, danser, être dans la nature
 Quid du lien 
 Lien de création ?
+
+pour écrire il me faudrait 3 jours par semaine pas deux donc objectif 
+Séance de 45min, 3000. 
