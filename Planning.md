@@ -9,7 +9,7 @@ Mardi
 Mercredi 
 Médical
 
-Jeudi  : 8 créneaux 
+Jeudi  : 9 créneaux 
 
 14h/14h45
 14h45/15h30
@@ -19,7 +19,7 @@ Jeudi  : 8 créneaux
 17h45/18h30
 18h30/19h15
 19h15/20h
-20h/20h45? 
+20h/20h45
 
 Vendredi psy : 8 créneaux et un groupe de parole
 
