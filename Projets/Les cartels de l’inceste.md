@@ -87,3 +87,9 @@ C’est seulement des mécanismes pas des paroles
 Il faut ficher quelques livres :
 	L âge de détruire, 
 		L autre transgener&tionel
+
+
+Jean Luc Viaux : "les incestes"
+
+sujet de droit : l'individu, 2 : l'entreprise
+utopie : 3 la famille
